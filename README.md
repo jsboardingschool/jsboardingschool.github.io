@@ -1,1 +1,0 @@
-# jsboardingschool.github.io
